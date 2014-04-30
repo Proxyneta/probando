@@ -1,0 +1,1 @@
+Wild Games es una comunidad gamer con un fin nada mas que el de hacerte pasar un buen rato, puedes comprar juegos, conocer nueva gente y disfrutar con tus amigos la estadia en un team speak
