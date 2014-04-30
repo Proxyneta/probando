@@ -1,0 +1,1 @@
+Esta pagina es financiada por Nou(Nicole Arostica) y diseñada por Proxyneta(Joshua Ortiz)
